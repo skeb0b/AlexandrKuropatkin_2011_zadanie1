@@ -1,0 +1,1 @@
+# AlexandrKuropatkin_2011_zadanie1
